@@ -1,1 +1,1 @@
-Fetio por Kaio e Gaby atrave do curso Alura
+Fetio por Kaio e Gaby atraves do curso Alura
